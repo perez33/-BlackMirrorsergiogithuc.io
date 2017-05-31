@@ -1,1 +1,1 @@
-# -BlackMirrorsergiogithuc.io
+# http://BlackMirrorsergiogithuc.io
